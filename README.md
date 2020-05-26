@@ -1,3 +1,6 @@
 # Hello-World-
+
 Hello Humans!
-My name is mustafa and I really love to play basketball and video games daily.
+
+Living in outer-space really is cool
+But living on the Earth mau be even WAY cooler in my opnion.
